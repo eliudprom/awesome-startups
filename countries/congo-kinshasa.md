@@ -6,4 +6,4 @@
 4. [informagenie](http://www.startupranking.com/informagenie)
 5. [wazatech](http://www.startupranking.com/wazatech)
 6. [bool-drc](http://www.startupranking.com/bool-drc)
-
+7.[eliudprom](http://www.eliudprom.blogspot.com)
